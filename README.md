@@ -7,7 +7,8 @@ _me chama no free fire😜🔥🔫_
 
 _me chama no roblox (xuxuzinha_66)_
 
-![](https://tenor.com/pt-BR/view/twerk-roblox-hot-gif-25292968?utm_source=share-button&utm_medium=Social&utm_content=pinterest)
+**ta precisamo aparar a grama chame @rafaela.reversi.soares@escola.pr.gov.br**
+
 
 
 
