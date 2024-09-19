@@ -7,7 +7,9 @@ _me chama no free fire😜🔥🔫_
 
 _me chama no roblox (xuxuzinha_66)_
 
-**ta precisamo aparar a grama chame @rafaela.reversi.soares@escola.pr.gov.br**
+**ta precisando dar um up no cabelo chame @rafaela.reversi.soares@escola.pr.gov.br**
+
+![](https://blog-static.petlove.com.br/wp-content/uploads/2021/08/pug-filhote-petlove.jpg)
 
 
 
